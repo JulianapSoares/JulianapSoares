@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @JulianapSoares
-- 👀 I’m interested in books
 - 🌱 I’m currently learning Spanish
 - 💞️ I’m looking to collaborate on in animal campaigns
 - 📫 How to reach me: jcripto01@gmail.com
